@@ -10,4 +10,4 @@ igortadeumendescanomunhoz@gmail.com
 - 😄 Gosto de Metal
   
 Mötley Crüe
-![(https://media1.tenor.com/m/wyH120Dt5S0AAAAd/rock-star-motley-crue.gif)]
+![.](https://media1.tenor.com/m/wyH120Dt5S0AAAAd/rock-star-motley-crue.gif)
